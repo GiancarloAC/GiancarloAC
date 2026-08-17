@@ -1,4 +1,4 @@
-# Hey, I'm Giank 👋
+# Hey, I'm Giancarlo Arce (giank) 👋
 
 ### Full Stack Developer · Perú 🇵🇪
 
